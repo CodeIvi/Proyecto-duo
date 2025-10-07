@@ -23,3 +23,7 @@ La serie mezcla horror con intriga: el peligro no es solo lo sobrenatural, sino 
 ## Opinión personal
 
 La serie tiene un ambiente que engancha desde el minuto uno, cada capítulo te genera más dudas y eso hace que quiera serguir viendo más capítulos, a mi me encanta la serie y estoy deseando que salga la siguiente temporada.
+
+
+## Opinion Pablo Herrera
+Viva el PSOE!!
