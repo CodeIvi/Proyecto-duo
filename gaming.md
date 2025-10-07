@@ -1,6 +1,7 @@
 # [Juego 1] - Call of Duty
 # [Juego 2] - Fifa 26
 # [Juego 3] - Uncharted
+# [Juego 4] - Batterfield
 
 
 
